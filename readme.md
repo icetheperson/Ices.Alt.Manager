@@ -1,6 +1,6 @@
-# 🧊 Ice's Alt Manager 
+# 🧊 Ice's Alt Manager 👤
 
-##  Welcome to Ice's Alt Manager
+## 👤 Welcome to Ice's Alt Manager
 ### 🔥 Do you have an Infinite Amount of Accounts and you are tired of putting them into a Google Slide? Well then this Webpage is For You!
 ------------------------------------------------------------------------------------------
 ## ❓ Why Ice's Alt Manager
