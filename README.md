@@ -7,10 +7,10 @@
 ### 🌐 Customizable UI
 ### ✅ Safe to Use (All of your Information is Stored Locally on your Computer or on your Config)
 ### 💰 100% Free to Use
-### 🛡️ Made by a Trusted Developer (Discord with 1K+ Members and Youtube with 4k+ Subscribers)
+### 🛡️ Made by a Trusted Developer (Discord with 1K+ Members and Youtube with 5k+ Subscribers)
 ------------------------------------------------------------------------------------------
 ### ➕ Support the Creator by joining the Discord:
 # https://discord.gg/xHrsf6fMuM
 ------------------------------------------------------------------------------------------
-### ➕ Support the Creator by joining the Subscribing to the Youtube:
+### ➕ Support the Creator by Subscribing to the Youtube:
 # https://youtube.com/@ice_the_person
